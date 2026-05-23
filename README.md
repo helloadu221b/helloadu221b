@@ -1,4 +1,4 @@
-# Hey there 👋 I'm Aditi
+# Hey there 👋 I'm Mayank
 
 ## 🚀 About Me
 🎓 MCA Student  
