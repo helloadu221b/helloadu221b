@@ -1,4 +1,4 @@
-# Hey there 👋 I'm Mayank
+# Hey there 👋 I'm Prajwal
 
 ## 🚀 About Me
 🎓 MCA Student  
